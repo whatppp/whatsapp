@@ -6,4 +6,4 @@ whatsapp 云控出售，包含逆向协议及整套云控系统
 5：ws群（拉群，养群）
 
 有意向联系： https://t.me/abcdxzy001
-whatsap 逆向协议 云控
+whatsapp 逆向协议 云控
